@@ -24,6 +24,8 @@
 最后，去他妈的Fleksy！再见，浪费爷的感情
 <br/><br/><br/><br/>
 
+----------
+
 因为帖子发在官网不通过，所以发在这个
 **附上Google play的评价**:https://play.google.com/store/apps/details?id=com.syntellia.fleksy.keyboard
 <br/><br/>
