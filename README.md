@@ -1,4 +1,4 @@
-# 还在等Fleksy 中文/Chinese 的朋友们请放弃吧，这个公司就是TM的歧视中国
+# 还在等Fleksy 中文/Fleys Chinese 的朋友们请放弃吧，这个公司就是TM的歧视中国
 
 
 不是杠，这公司就是TM赤裸裸的歧视中国<br/><br/>
