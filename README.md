@@ -22,3 +22,13 @@
 **真的求各位华人 别跪舔他们添加中文了，放弃吧！** 真的6年了 要有那心早就支持了<br/><br/>
 
 最后，去他妈的Fleksy！再见，浪费爷的感情
+<br/><br/><br/><br/>
+
+因为帖子发在官网不通过，所以发在这个
+**附上Google play的评价**:https://play.google.com/store/apps/details?id=com.syntellia.fleksy.keyboard
+<br/><br/>
+![alt](https://raw.githubusercontent.com/aaceee/fleksy-chinese/main/a.PNG)
+![alt](https://raw.githubusercontent.com/aaceee/fleksy-chinese/main/a2.PNG)
+![alt](https://raw.githubusercontent.com/aaceee/fleksy-chinese/main/a3.PNG)
+
+
